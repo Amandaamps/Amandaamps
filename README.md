@@ -8,8 +8,7 @@ Meu nome é Amanda Prestes
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+amanda.prestes.santos.06@escola.pr.gov.br
 
-@marcelopaludetto
 
 ![descrição do GIF](link GIF do Tenor)
